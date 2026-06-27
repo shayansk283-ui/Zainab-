@@ -1,4 +1,4 @@
-# Zainab-
+wj je
 Happy birthday Zma malaki♥️🎂
 Happy Birthday, zama da zra malaki! ❤️🎂 Sta pa ratlo zama dunya badla shwa. Har sa che laram, sta pa waja der qeemati de. Za ta pa zra ke hagha  meena laram che pa lafzuno ke na she bayanedalay. Har dua ke sta num akhlam aw har arman me da sta sara yaw mustaqbil de. Allah de hamesha khushala, sehatmnda aw kamyaba lari. Zama da zra yawaze arman da che yaw wrz ta zama da zindagi da hamesha para humsafara she. Happy Birthday, my queen. I love you endlessly. ❤️♾️🌹
 
